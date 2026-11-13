@@ -1,1 +1,0 @@
-# mtg-vault-legal
